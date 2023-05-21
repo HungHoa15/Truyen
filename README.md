@@ -1,2 +1,2 @@
 # Truyen
-Truyen
+https://www.nettruyenplus.com/
